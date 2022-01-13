@@ -1,6 +1,8 @@
 ## Die Vertuschung der Lab-Leak-Theorie 
 
-von James B. Meigs 
+von James B. Meigs
+
+Quelle: https://www.commentary.org/articles/james-meigs/lab-leak-theory-cover-up/
 
 "Eines Tages werden wir aufhören, über die Laborleck-Theorie zu sprechen und vielleicht sogar ihre rassistischen Wurzeln zugeben. Doch leider ist dieser Tag noch nicht gekommen", schrieb die Schriftstellerin Apoorva Mandavilli kürzlich auf Twitter. Es wäre leicht gewesen, direkt an dem Kommentar vorbeizuscrollen - Twitter ist voll von Leuten, die über COVID schimpfen und jeden rassistisch nennen - wenn nicht dies die Twitter-Biografie der Schreiberin gewesen wäre: "Reporterin @nytimes, berichtet hauptsächlich über #covid19". Später an diesem Tag löschte die New York Times-Reporterin ihren Tweet wieder und sagte, er sei "schlecht formuliert gewesen". Der fragliche Tag war der 26. Mai 2021. Die sich häufenden Hinweise darauf, dass das COVID-19 Coronavirus aus dem Wuhan Institute of Virology entwichen sein könnte, anstatt spontan aus der Natur aufzutauchen, waren zum heißesten Thema im Journalismus und der potenziell folgenreichsten Wissenschaftsgeschichte seit einer Generation geworden.
 
